@@ -4,4 +4,5 @@ Finka Cindy Antika
 6B Informatika
 19670050
 
-Website : akses folder di template
+Akses Website : folder emplate
+Mohon maaf pa saya zip karna filenya tidak cukup di upload
